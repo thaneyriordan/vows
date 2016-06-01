@@ -1,1 +1,1 @@
-Promises I make to @kaythaney on our wedding day.
+Promises @kaythaney and @riordan made to one another on their wedding day.
