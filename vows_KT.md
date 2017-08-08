@@ -6,7 +6,7 @@ I promise to be true to you - to frustrate and challenge you, so that we never s
 
 Being true to you in these ways are not just promises to me, they're my greatest job yet, and my greatest privilege. 
 
-I vow to put our love first - and to put you first - even when times get hard. That the love of those friends and family here today will continue to serve as a model, a support and will get us through. I vow to be steadfast and your stability when life feels shaky and uncertain, and remind you daily that regardless of what is thrown at us, that we got this. 
+I vow to put our love first - and to put you first - even when times get hard. That the love of those friends and family here today will continue to serve as a model, a support and will get us through. I will be as steadfast as our love, your stability when life feels shaky and uncertain, and an everlasting reminder that regardless of what life throws at us, we got this. 
 
 I believe in the trust of what we are - and who we are - and who we push each other to be. 
 
