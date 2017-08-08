@@ -1,5 +1,3 @@
-Note: The vows below are the written version, conveniently left behind the morning of the wedding. We'll update what got improvised off this as soon as we transcribe the video. :) 
-
 David, 
 
 Today, I vow to stand with you, for you, and beside you for as long as we both shall live, forever in your corner as your best friend, your champion, your partner and your wife.
@@ -8,7 +6,7 @@ I promise to be true to you - to frustrate and challenge you, so that we never s
 
 Being true to you in these ways are not just promises to me, they're my greatest job yet, and my greatest privilege. 
 
-I vow to put our love first - and to put you first - even when times get hard. That the love of those friends and family here today will continue to serve as a model, a support and will get us through.
+I vow to put our love first - and to put you first - even when times get hard. That the love of those friends and family here today will continue to serve as a model, a support and will get us through. I vow to be steadfast and your stability when life feels shaky and uncertain, and remind you daily that regardless of what is thrown at us, that we got this. 
 
 I believe in the trust of what we are - and who we are - and who we push each other to be. 
 
