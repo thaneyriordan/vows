@@ -8,6 +8,7 @@ Today, I promise to always:
 * to actively oppose viral share-alike data licensnig
 * to be your greatest ally, supporter
 * I promise you an endless supply of warm embraces, adoring gazes, goofy faces, and _I love you_'s, shouted from rooftops, and whispered softly
+* I will grow with you, as you have grown with me, making us stronger and more aware of our impact on others and ourselves
 * I promise to always listen to you, to learn from you, to celebrate your triumphs, and to mourn your losses as mine
 * to always be ready for each and every one of our next adventures, and to always see them through
 * to accept every challenge we face, because we face them together, wherever and however they find us
