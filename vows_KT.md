@@ -2,7 +2,7 @@ Dave,
 
 Today, I vow to stand with you, for you, and beside you for as long as we both shall live, forever in your corner as your best friend, your champion, your partner and your wife.
 
-I promise to be true to you - to frustrate and challenge you, so that we never stop being curious together. 
+I promise to be true to you - to frustrate and challenge you, so that we never stop being curious or championing open access together. 
 
 Being true to you in these ways are not just promises to me, they're my greatest job yet, and my greatest privilege. 
 
